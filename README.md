@@ -72,7 +72,7 @@
 #### 3. Deadline is 31st October.
 #### 4. I will personally check each code and if I find any code not following the rules, then his/her Pull Request will be marked as invalid and it won't be counted.😥
 
-### If you need any help, Contact me at **7991885162**(call or WhatsApp) at any time 24*7.😊
+### If you need any help, https://www.linkedin.com/in/ritik-kumar-tiwari-%F0%9F%87%AE%F0%9F%87%B3-6869b7184/ at any time 24*7.😊
 ##
 
 <img src="http://ForTheBadge.com/images/badges/built-with-swag.svg" align="center"></img>
